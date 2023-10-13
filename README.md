@@ -14,25 +14,25 @@ Lịch đi chơi trong dịp Tết Nguyên Đán thường được lên kế ho
 Dưới đây là một số gợi ý lịch đi chơi trong dịp Tết Nguyên Đán:
 
 Ngày 29 Tết
-Dọn dẹp nhà cửa, mua sắm đồ Tết
-Gói bánh chưng, bánh tét
-Chuẩn bị mâm ngũ quả, cúng tất niên
+Dọn dẹp nhà cửa, mua sắm đồ Tết.
+Gói bánh chưng, bánh tét.
+Chuẩn bị mâm ngũ quả, cúng tất niên.
 
 Ngày 30 Tết
-Cúng tất niên
-Ghé thăm mộ tổ tiên
-Chuẩn bị đón giao thừa
+Cúng tất niên.
+Ghé thăm mộ tổ tiên.
+Chuẩn bị đón giao thừa.
 
 Từ mùng 1 đến mùng 3 Tết
-Đi chúc Tết họ hàng, bạn bè
-Vui chơi, giải trí
-Tham gia các hoạt động văn hóa, lễ hội
+Đi chúc Tết họ hàng, bạn bè.
+Vui chơi, giải trí.
+Tham gia các hoạt động văn hóa, lễ hội.
 
 Ngày mùng 4 Tết
-Đi thăm thú các địa điểm du lịch
-Đi mua sắm
+Đi thăm thú các địa điểm du lịch.
+Đi mua sắm.
 
 Ngày mùng 5 Tết
-Trở lại công việc, học tập
+Trở lại công việc, học tập.
 
 
